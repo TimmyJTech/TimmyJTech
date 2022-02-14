@@ -4,5 +4,6 @@
 - 💞️ I’m looking to teach others how to make games!
 - 📫 If you have any questions reach out to me at timmyjtech@gmail.com
 
-If you want to learn how to code you can find my Coding Tutorials on my YouTube Channel!
-Become a Patreon today for exclusive access to assets!
+- If you want to learn how to code you can find my Coding Tutorials on my YouTube Channel!
+- Download Hooked! AutoFisher! on Android & IOS!!
+- ecome a Patreon today for exclusive access to assets!
