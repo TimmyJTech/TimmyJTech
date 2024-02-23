@@ -5,5 +5,6 @@
 - 📫 If you have any questions reach out to me at timmyjtech@gmail.com
 ********************************************
 - If you want to learn how to code you can find my Coding Tutorials on my YouTube Channel!
-- Download Hooked! AutoFisher! on Android & IOS!!
+- Wishlist That One Dungeon on Steam!!
+- Download Hooked! AutoFisher! on Android Google Play Store!!
 - Become a Patreon today for exclusive access to assets!
